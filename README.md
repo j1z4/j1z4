@@ -1,3 +1,3 @@
 im a software engineer @ forgegui, i co-founded iowa tech education to help the youth find their path in cyber, im a technical programming specialist @ pi515, and i just love to do whatever to kill my time and am always forward thinking. ive won a hackathon at my university, multitude of national and state wins in multiple cyber competitions, and i love cybersecurity, pentesting, and building solutions to make this world a better place. just know you can do it if you really put your mind to it. i never started out with a lot, but i made the most with what i had. you can do it, and you got this. i believe in every one of you to do great.
 
->>> jef
+-jef
